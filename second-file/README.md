@@ -12,3 +12,5 @@ Har Har Mahadev
 jay shree mahakal
 <br>
 jay ma jagdamba
+<br>
+jay ma saraswatti
